@@ -1,4 +1,4 @@
-### Boas vindaas ao meu perfil 🍒
+### Boas vindaas ao meu perfil 🐚
 
 Meu nome é Nathani Gamba 🦋🤍
 
